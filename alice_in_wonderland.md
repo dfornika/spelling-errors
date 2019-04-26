@@ -2,9 +2,9 @@
 
 ## Chapter 1: Down the Rabbit Hole
 
-Alice was beginning to get veery tired of sitting by her sister on the bank,
-and of having nothing to do: once or TWICE she had peeped into the book her
-sister was reading, but it had no pictu6res or conversations in it, "and what
+Alice was beginning to get very tired of sitting by her sister on the bank,
+and of having nothing to do: once or TWICE she had peaked into the book her
+sister was reading, but it had no pictures or conversations in it, "and what
 is the use of a book," thought Alice ‘without pictures or conversations?’
 
 so she was considering in her own mind (as well as she could, for the hot
